@@ -1,2 +1,2 @@
 
-[link](https://jstris.com)
+[link](https://jstris.jezevec10.com)
